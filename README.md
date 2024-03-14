@@ -1,0 +1,1 @@
+# Wistara-s-dictionary
